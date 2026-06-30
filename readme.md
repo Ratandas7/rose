@@ -1,1 +1,1 @@
-Knowing
+Knowing isn't doing,
