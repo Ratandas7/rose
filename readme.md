@@ -1,1 +1,1 @@
-Knowing isn't doing, doing
+Knowing isn't doing, take
