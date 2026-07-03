@@ -1,1 +1,1 @@
-Knowing is not doing, doing is
+Knowing is not doing, doing is doing.
