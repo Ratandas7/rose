@@ -1,1 +1,3 @@
-Knowing is not doing, doing is doing.
+Knowing isn't doing, doing is doing.
+
+Your life change.
